@@ -12,3 +12,7 @@ You only need to treat zyh at 2018-08-11, and he can help you pass all JI course
 1. Zyh claims his recommend letter is bad.
 2. Zyh never want to go to USC, even to pay a visit.
 3. Zyh states that he will have no chance to study.
+
+# Zyh and testudo
+1. Zyh lives very near to testudo, which is the greatest honor of testudo in 2021.
+2. Zyh starts to play genshin impact in 2021, so genshin impact becomes the most popular mobile game in US.
